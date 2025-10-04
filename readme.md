@@ -32,7 +32,7 @@ SUDAH BERHASIL
 3. novela spalo
 3. Abi Hafshin
 4. Aulia Viyansyah Afif
-5. Darojatun
+5. Darojatun - izin magang di sini ya guys
 6. Ganti dengan nama kamu di sini!
 7. Ganti dengan nama kamu di sini!
 8. Ganti dengan nama kamu di sini!
